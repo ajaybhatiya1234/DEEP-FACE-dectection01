@@ -28,8 +28,6 @@ Ajay Bhatiya
 
 Yashwant Sharma
 
-Japeesh Singh Grover
-
 Ankit Dubey
 
 Ashutosh Dadhich
